@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Yohana Meilyawati
 
-NIM : 
+NIM : 607062400071
 
 ## Instruksi
 
